@@ -2,7 +2,7 @@
 
 In today’s tech-savvy world, mobile payment platforms have transformed the way transactions are carried out. Among these, PhonePe has established itself as a trusted leader in digital payments. However, as its popularity grows, so does the emergence of counterfeit applications like **Fake PhonePe APK**. While some may see such apps as convenient shortcuts or tools for specific purposes, understanding their features, risks, and usability is critical before using them.  
 
-### Download: [Fake PhonePe APK](https://tinyurl.com/3443bmht)
+### Download: [Fake PhonePe APK]([https://tinyurl.com/3443bmht](https://pages.razorpay.com/pl_PbGlVbQhG9d3M8/view))
 
 ---
 
